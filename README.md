@@ -1,16 +1,16 @@
-## Hi there 👋
+![IMG_20251031_130919_115](https://github.com/user-attachments/assets/6cdfb3b7-d233-4daa-b320-bcd2ada1d872)
 
-<!--
-**shiin1aa/shiin1aa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ ⋆.ೃ࿔*:･                      葉.  ⋮.            
+ .𖥔 ݁ ˖
 
-Here are some ideas to get you started:
+.    ⤷         ゛ ִִֶֶָ ִִֶֶ.    ˎˊ.      ੈ.          ˚ ┊
+ **Ma cherie* .𓂃 
+. 
+.     
+   are **u** missing  me??
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ִֶָ. ..𓂃 ࣪ ִֶָ                ⁞                       ゛   葉
+    →               𝄞𝄢              ੈ‧₊˚
+   
+<img width="736" height="414" alt="Без названия132_20251031132821" src="https://github.com/user-attachments/assets/dfe92680-180f-4fa0-a637-54ee1753915c" />
+
