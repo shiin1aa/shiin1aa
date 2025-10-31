@@ -1,4 +1,5 @@
-![IMG_20251031_130919_115](https://github.com/user-attachments/assets/6cdfb3b7-d233-4daa-b320-bcd2ada1d872)
+![IMG_20251031_130919_115](https://github.com/user-attachments/assets/6cdfb3b7-d233-4daa-b320-bcd2ada1d872)<img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/d4923b98-3c16-4fcb-abaf-eb89d93bc6d5" />
+
 
  ⋆.ೃ࿔*:･                               葉.  ⋮.            
                   .𖥔 ݁ ˖
